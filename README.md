@@ -1,6 +1,6 @@
 # 👩🏻‍💻 Camila Arissa
 
-**`Student`**
+**`Computer Science Student`**
 
 ### 🤖 Linguagens e Tecnologias
 
