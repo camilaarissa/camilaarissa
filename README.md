@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Camila Arissa
+# 🦋 Camila Arissa
 
 **`Computer Science Student`**
 
